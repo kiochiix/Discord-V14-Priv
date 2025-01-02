@@ -1,1 +1,3 @@
-# Pm2-Priv-Bot-Altyap-s-
+Arkadaslar Yakında Paylasacagım 
+
+Discord : discord.gg/berlincode
