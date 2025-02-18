@@ -1,3 +1,1 @@
-Arkadaslar Yakında Paylasacagım 
-
-Discord : discord.gg/berlincode
+20 starda paylascam
