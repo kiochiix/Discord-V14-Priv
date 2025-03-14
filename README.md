@@ -1,1 +1,1 @@
-20 starda paylascam
+<h2 align="center"><img src="https://readme-typing-svg.herokuapp.com?font=Pacifico&pause=1000&color=CA05C3&background=69FF2000&center=true&vCenter=true&repeat=false&width=435&lines=Discord V14 Priv Botu's" alt="Typing SVG" /></h2>
